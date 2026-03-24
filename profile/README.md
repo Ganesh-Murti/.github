@@ -9,7 +9,7 @@
 </p>
 
 <p>
-Lord Ganesha, also known as Ganpati Bappa, is one of the most worshipped deities in Hindu culture. Known as the remover of obstacles and the god of wisdom, success, and new beginnings, placing a **[Ganesh murti](https://artarium.com/collections/ganesh-murti)** at home is considered highly auspicious. Whether for daily worship, home décor, or gifting, a beautifully crafted Ganesh idol brings positivity, peace, and prosperity into your life.
+Lord Ganesha, also known as Ganpati Bappa, is one of the most worshipped deities in Hindu culture. Known as the remover of obstacles and the god of wisdom, success, and new beginnings, placing a Ganesh murti at home is considered highly auspicious. Whether for daily worship, home décor, or gifting, a beautifully crafted Ganesh idol brings positivity, peace, and prosperity into your life.
 </p>
 
 <p>
@@ -112,7 +112,7 @@ Each idol reflects devotion, craftsmanship, and artistic beauty, making it a per
 <h2>🙏 Final Thoughts</h2>
 
 <p>
-A **[Ganesh murti](https://artarium.com/collections/ganesh-murti)** is more than just a decorative piece—it is a symbol of faith, positivity, and divine energy. Whether you place it in your home, office, or car, it serves as a constant reminder of wisdom, success, and new beginnings.
+A Ganesh murti is more than just a decorative piece—it is a symbol of faith, positivity, and divine energy. Whether you place it in your home, office, or car, it serves as a constant reminder of wisdom, success, and new beginnings.
 </p>
 
 <p>
